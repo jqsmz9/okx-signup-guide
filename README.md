@@ -12,7 +12,6 @@ The key to maximizing your benefits? Using the right referral code during signup
 
 ## 1) Creating Your Account
 
-![OKX Sign Up Process](image/83772389768340.webp)
 
 Start by clicking the official registration link. You'll land on the homepage where the signup process begins.
 
